@@ -1,2 +1,2 @@
 # web_lesson
-ene bol minii omlinaar surch baigaa hicheel.
+ene bol minii onlinaar surch baigaa hicheel.
